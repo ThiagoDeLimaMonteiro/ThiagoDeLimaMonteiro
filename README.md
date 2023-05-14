@@ -7,4 +7,4 @@ thiago.lima.monteiro@escola.pr.gov.br
 
 Esse sou eu 👇
 
-![](https://media.tenor.com/9p2gyfuTPrcAAAAi/luigisexy-twerk.gif)
+![](https://media.tenor.com/bK0I30MqeIMAAAAj/funny-owl-funny.gif)
